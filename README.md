@@ -17,7 +17,7 @@ Sou uma pessoa dedicada e curiosa, em busca de aprendizado constante. Estou come
 
 ## 📫 Como me encontrar
 
-Você pode me encontrar por aqui mesmo no GitHub ou me chamar para trocar uma ideia sobre tecnologia!
+Você pode me encontrar por aqui mesmo(se seu nome for sophia nao fale cmg) no GitHub ou me chamar para trocar uma ideia sobre tecnologia!
 
 ---
 
